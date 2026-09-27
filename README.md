@@ -1,5 +1,5 @@
 # 💫 About Me:
-Je suis un étudiant a l'IIM (Ecole de l'innovation du Numérique et du Multimédia) et je suis activement a la recherche d'un stage de 2 a 4 mois dans le domaine du développement web a partir du mois d'avril 2026 et d'une alternance 3 semaines entreprise, 1 semaine école à partir de septembre 2026
+Etudiant a l'IIM Digital School (3e année). En recherche d'une alternance ou stage alterné avec un rythme : 3 semaines entreprise, 1 semaine formation à partir de septembre 2026
 
 
 ## 🌐 Socials:
