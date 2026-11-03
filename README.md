@@ -1,5 +1,5 @@
 # 💫 About Me:
-Etudiant a l'IIM Digital School (3e année). En recherche d'une alternance ou stage alterné avec un rythme : 3 semaines entreprise, 1 semaine formation à partir de septembre 2026
+Etudiant a l'IIM Digital School (3e année). En recherche d'une alternance ou stage alterné avec un rythme : 3 semaines entreprise, 1 semaine formation dès que possible dans toute la France 
 
 
 ## 🌐 Socials:
